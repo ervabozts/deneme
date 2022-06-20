@@ -1,2 +1,0 @@
- yu hgıy hıug
- 

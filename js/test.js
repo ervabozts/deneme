@@ -1,3 +1,0 @@
-gkgcktct;
-hhggvghvkı;
-fgfgyvıy;
