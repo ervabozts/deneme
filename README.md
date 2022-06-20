@@ -2,6 +2,4 @@
 
 ## Alt Bilgi
 
-ghdge
-hfgwhru
 
