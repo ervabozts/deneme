@@ -5,4 +5,3 @@
 ghdge
 hfgwhru
 
-[lorem ipsum](http://google.com)
